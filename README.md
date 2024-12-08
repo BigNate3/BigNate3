@@ -13,3 +13,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: he/him  
 - ⚡ Fun fact: I worked on this projet alone
 -->
+![image](https://github.com/user-attachments/assets/d514d40f-0cc3-4d0d-a7aa-851644741513)
